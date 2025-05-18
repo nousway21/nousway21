@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nousway21
+- 👋 Hi, I’m nousway21
 - 👀 I’m interested in PROGRAM's
 - 🌱 I’m currently learning ENGLISH, IT, PYTHON
 - 📫 How to reach me https://t.me/xs_77k
